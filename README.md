@@ -1,1 +1,0 @@
-# nurisandvip.github.io
